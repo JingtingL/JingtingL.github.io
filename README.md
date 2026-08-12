@@ -1,2 +1,2 @@
-# jingtingliu123.github.io
+# jingtingl.github.io
 Welcome to my portfolio page! Come in to learn more about me!
